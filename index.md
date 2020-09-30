@@ -8,3 +8,10 @@ My thoughts are very powerful, they are very important. They are the creative fo
 
 ## Thoughts map directly to Feelings -
 I have
+
+### Day 2: 30 September, 2020
+## Time is an illusion:
+Time is just an illusion created by the falsely mind. Everything is happen simultaneously, together. All so called past memories, future desires/dreams coexist in the present together in parallel occurring. I believe in my thoughts. The universe inside me receives my thoughts and adjusts to the reality.
+
+## A simple test:
+Law of attraction is to plant a seed of thought and having full faith and belief in it that universe will make it happen
